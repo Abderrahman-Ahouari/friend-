@@ -1,2 +1,0 @@
-# friend-
-reti"'erjgtio"z
